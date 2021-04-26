@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Soham
 - 👀 I’m interested in startups, product, philosphy, spirituality and football and open to new things
 - 🌱 I’m currently how to design and in general always open to learn more about anything that peaks my interest
-- 💞️ I’m looking to collaborate on building a website with zero knowledge of coding
+- 💞️ I’m super into no code. wanna learn more
 - 👾 I'm impressed very easily so you guys can shoot anything at me and we'll talk bout it.
 - 💚 Show love and empathy and make this world a happier place for all. 
 - 🐤 Twitter **@sohamghoshh**
